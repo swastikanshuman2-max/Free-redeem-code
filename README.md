@@ -1,2 +1,2 @@
-# Free-redeem-code
+# free-redeem-code
 Hi
